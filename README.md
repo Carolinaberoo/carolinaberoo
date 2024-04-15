@@ -1,6 +1,6 @@
 Sobre Mim
 
-Sou Carolina, uma estudante do ensino médio cheia de curiosidade e determinação. Mesmo que ainda não tenha concluído meus estudos, já me destaco por minha participação ativa em atividades extracurriculares e projetos comunitários. Minhas experiências me inspiram, e meu desejo é causar um impacto positivo na vida das pessoas, por isso estou desenvolvendo um projeto de vida que combina meus interesses e talentos para criar mudanças significativas em minha comunidade e além. Estou determinada a explorar todas as oportunidades que surgirem e enfrentar os desafios que a vida me apresentar com confiança e otimismo.
+Me chamo Carolina, sou uma estudante do ensino médio cheia de curiosidade e determinação. Mesmo que ainda não tenha concluído meus estudos, já me destaco por minha participação ativa em atividades extracurriculares e projetos comunitários. Minhas experiências me inspiram, e meu desejo é causar um impacto positivo na vida das pessoas, por isso estou desenvolvendo um projeto de vida que combina meus interesses e talentos para criar mudanças significativas em minha comunidade e além. Estou determinada a explorar todas as oportunidades que surgirem e enfrentar os desafios que a vida me apresentar com confiança e otimismo.
 
 Meu Projeto de Vida
 
